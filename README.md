@@ -1,1 +1,1 @@
-👋🏼  Hi, I'm [Ethan Wong](https://ethanwong.me/).
+👋🏼   Hi, I'm [Ethan Wong](https://ethanwong.me/).
